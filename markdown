@@ -1,5 +1,6 @@
 ============Previously===========
 ----
+hallo
 -=Kazuki entert the Entrance Exams for UA and got placed in class 1S because of certain suspicion from the teachers like everyone in 1S, He got the chance to meet the others in his classroom and went around to discover UA with his classmates.=-
 
 ============This=Time===========
